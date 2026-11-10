@@ -1,4 +1,4 @@
-# Hi, I'm Jawad Rehman 👋 — JR★¹★
+# Hi, I'm Jawad Rehman 👋 
 
 ## ⭐ Influencer Marketing Specialist | Lead Generation Expert | LinkedIn Outreach | Virtual Assistant
 
